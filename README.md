@@ -1,3 +1,3 @@
 # 4i 2024
 ## dziś forki
-## [Łukasz Wita](https://youtu.be/xvFZjo5PgG0)
+## [Łukasz wita](https://youtu.be/xvFZjo5PgG0)
